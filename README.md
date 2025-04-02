@@ -10,7 +10,7 @@
 - 📧 Email: sudipsumancollege@gmail.com  
 - [GitHub](https://github.com/sudip-bappa)  
 
-### 😄 Pronouns: **[Your Pronouns]**  
+### 😄 Pronouns: He/Him  
 ✨ Let's build something awesome together! 🚀  
 
 <!---
